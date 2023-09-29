@@ -29,6 +29,10 @@ Le bucheron, furieux face à l'insolence du pigeon et à l'attitude de ses amis 
 
 C'était la voix de la sagesse incarnée par un vieux hibou qui vivait depuis des années dans cet arbrisseau devenu grand. Il dit d'une voix grave et réfléchie, "Arrêtez cette querelle inutile, mes amis. La nature est notre refuge à tous, et la violence ne mènera qu'à la destruction. Nous devons trouver un moyen de coexister pacifiquement."
 
+Malheureusement, l'homme ne comprend pas le language hibou et finit par lui couper la tête. la tête de l'oiseaux roula jusqu'au pied du bucheron. Le **pigeon** choqué finit par s'envoler et s'enfuir. L'arbrisseau fut très déçu de son ami.
+
+![pigeon](https://icietla-magazine.com/wp-content/uploads/2019/11/32-pigeon-une.png)
+
 # exercise-exquisite-corpse
 
 Sur la plage, ***un petit garcon*** batit **un chateau de sable**.  
