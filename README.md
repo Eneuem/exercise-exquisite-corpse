@@ -15,3 +15,4 @@ Il ne pouvait malheureusement pas prendre ses
 ![jambes](https://decathlondom.franceolympique.com/decathlondom/fichiers/pages/fiches_techniques/sante/muscles/images/muscles-membre-inferieur.jpg) 
 
 à son <sup>cou</sup>.
+Le *pigeon* malgrés la fatigue visible sur son pellage est parti aidé son ami **l'abrisseau** en deposant poetiquement sur le crane atteind de calvitie une jolie crotte blanche repplant la sauce blanche.
