@@ -16,3 +16,11 @@ Il ne pouvait malheureusement pas prendre ses
 
 à son <sup>cou</sup>.
 Le *pigeon* malgrés la fatigue visible sur son pellage est parti aidé son ami **l'abrisseau** en deposant poetiquement sur le crane atteind de calvitie une jolie crotte blanche repplant la sauce blanche.
+
+
+**Le bucheron** fou de rage veut trancher le cou du **Mr Pigeon** avec la hache pour se venger.   
+
+**Le pigion** narge le bucheron en passant d'une branche à l'autre. 
+
+Pour soutenir **Mr Pigeon** ces amis viennent aussi dans l'arbre pour narger le bucheron.  
+ 
