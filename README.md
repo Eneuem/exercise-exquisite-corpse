@@ -23,4 +23,7 @@ Le *pigeon* malgrés la fatigue visible sur son pellage est parti aidé son ami 
 **Le pigion** narge le bucheron en passant d'une branche à l'autre. 
 
 Pour soutenir **Mr Pigeon** ces amis viennent aussi dans l'arbre pour narger le bucheron.  
- 
+
+Le bucheron, furieux face à l'insolence du pigeon et à l'attitude de ses amis ailés, brandit sa hache menaçante, prêt à trancher le cou du malheureux pigeon. Mais alors que la tension montait, une voix sage et apaisante s'éleva de l'arbre.
+
+C'était la voix de la sagesse incarnée par un vieux hibou qui vivait depuis des années dans cet arbrisseau devenu grand. Il dit d'une voix grave et réfléchie, "Arrêtez cette querelle inutile, mes amis. La nature est notre refuge à tous, et la violence ne mènera qu'à la destruction. Nous devons trouver un moyen de coexister pacifiquement."
