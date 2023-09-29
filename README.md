@@ -1,3 +1,4 @@
+ developement
 # L'arbrisseau et le pigeon
 
 ![El Pigeon](https://lemagdesanimaux.ouest-france.fr/images/dossiers/2020-11/pigeon-biset-084252.jpg)
@@ -27,3 +28,15 @@ Pour soutenir **Mr Pigeon** ces amis viennent aussi dans l'arbre pour narger le 
 Le bucheron, furieux face à l'insolence du pigeon et à l'attitude de ses amis ailés, brandit sa hache menaçante, prêt à trancher le cou du malheureux pigeon. Mais alors que la tension montait, une voix sage et apaisante s'éleva de l'arbre.
 
 C'était la voix de la sagesse incarnée par un vieux hibou qui vivait depuis des années dans cet arbrisseau devenu grand. Il dit d'une voix grave et réfléchie, "Arrêtez cette querelle inutile, mes amis. La nature est notre refuge à tous, et la violence ne mènera qu'à la destruction. Nous devons trouver un moyen de coexister pacifiquement."
+
+# exercise-exquisite-corpse
+
+Sur la plage, ***un petit garcon*** batit **un chateau de sable**.  
+
+Tout à coup, il se met à hurler, tout le monde se demande ce qu'il arrive.  
+
+**Ses parents** arrivent en courant et sont horrifier lorsque leur fils leurs montre ***un doigt coupé*** qu'il vient de trouver dans le sable.  
+
+![La plage](https://static.actu.fr/uploads/2019/08/25245-190813193240640-0-960x640.jpg "La plage")
+
+ cedric
