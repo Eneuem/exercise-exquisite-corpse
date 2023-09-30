@@ -16,14 +16,14 @@ Il ne pouvait malheureusement pas prendre ses
 ![jambes](https://decathlondom.franceolympique.com/decathlondom/fichiers/pages/fiches_techniques/sante/muscles/images/muscles-membre-inferieur.jpg) 
 
 à son <sup>cou</sup>.
-Le *pigeon* malgrés la fatigue visible sur son pellage est parti aidé son ami **l'abrisseau** en deposant poetiquement sur le crane atteind de calvitie une jolie crotte blanche repplant la sauce blanche.
+Le *pigeon* malgré la fatigue visible sur son pellage est parti aidé son ami **l'abrisseau** en deposant poétiquement sur le crane atteint de calvitie une jolie crotte blanche rappelant la sauce blanche.
 
 
 **Le bucheron** fou de rage veut trancher le cou du **Mr Pigeon** avec la hache pour se venger.   
 
-**Le pigion** narge le bucheron en passant d'une branche à l'autre. 
+**Le pigion** nargue le bucheron en passant d'une branche à l'autre. 
 
-Pour soutenir **Mr Pigeon** ces amis viennent aussi dans l'arbre pour narger le bucheron.  
+Pour soutenir **Mr Pigeon** ses amis viennent aussi dans l'arbre pour narguer le bucheron.  
 
 Le bucheron, furieux face à l'insolence du pigeon et à l'attitude de ses amis ailés, brandit sa hache menaçante, prêt à trancher le cou du malheureux pigeon. Mais alors que la tension montait, une voix sage et apaisante s'éleva de l'arbre.
 
@@ -33,8 +33,6 @@ Malheureusement, l'homme ne comprend pas le language hibou et finit par lui coup
 
 ![pigeon](https://icietla-magazine.com/wp-content/uploads/2019/11/32-pigeon-une.png)
 
-# exercise-exquisite-corpse
-
 Sur la plage, ***un petit garcon*** batit **un chateau de sable**.  
 
 Tout à coup, il se met à hurler, tout le monde se demande ce qu'il arrive.  
@@ -43,4 +41,4 @@ Tout à coup, il se met à hurler, tout le monde se demande ce qu'il arrive.
 
 ![La plage](https://static.actu.fr/uploads/2019/08/25245-190813193240640-0-960x640.jpg "La plage")
 
- cedric
+
